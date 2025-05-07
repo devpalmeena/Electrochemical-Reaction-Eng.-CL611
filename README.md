@@ -6,4 +6,4 @@ Prof. -  Bharatkumar Suthar
 
 
 Quiz , Midsem and Endsem Solution are uploaded here .
-Sir follow fullar book , Quiz question are directely taken from book & class notes . 
+Sir follow fullar book , Quiz,midsem & Endsem question are directely taken from book & class notes. 
